@@ -1,0 +1,1 @@
+# Mind training - grinding codewars ;) 🌴
